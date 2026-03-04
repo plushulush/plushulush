@@ -1,6 +1,6 @@
 https://linktr.ee/nerdyplush — all my socials in 1 place<br>
 https://rentry.co/lainingit — all my info ^^<br>
-lowk only on the game with @daftslashs or open while doing schoolwork ..... sorry if i dont see ur msgs or whispers 😓😓
+lowk only on the game with @daftslashs or open while doing schoolwork ..... sorry if i dont see ur msgs or whispers 😓😓 thank yew thooo
 <br>
 ![](https://github.com/plushulush/plushulush/blob/main/ezgif-75fef752b9cc29cc.gif?raw=true)<br>
 <br>
