@@ -1,6 +1,6 @@
 https://linktr.ee/nerdyplush — all my socials in 1 place<br>
 https://rentry.co/lainingit — all my info ^^<br>
-https://rentry.co/W711 — just applies to my ponytown buddies<br>
+lowk only on the game with @daftslashs or open while doing schoolwork ..... sorry if i dont see ur msgs or whispers 😓😓
 <br>
 ![](https://github.com/plushulush/plushulush/blob/main/bfdi-bfdia.gif?raw=true)<br>
 <br>
