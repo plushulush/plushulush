@@ -1,7 +1,7 @@
 <p align="center">
 <sub>
-  $\color{#E972A7}{\textsf{i will write to you ⠀ through the stars and clouds}}$</sub><br>
-  $\color{#E972A7}{\textsf{with threads ‎⠀...⠀ in the air}}$
+  $\color{#E6AEC4}{\textsf{i will write to you ⠀ through the stars and clouds}}$</sub><br>
+  $\color{#E6AEC4}{\textsf{with threads ‎⠀...⠀ in the air}}$
   </sub>
 
 <p align="center">
@@ -15,12 +15,13 @@ sorry if i dont see ur messages :-(<br>
 <a href="https://linktr.ee/nerdyplush">linktree</a> , <a href="https://plushulush.straw.page">strawpage</a>
 <br></p>
 
-<p align="center">
+<div align="center">
 
-![](ttps://komarev.com/ghpvc/?username=plushulush&color=BAE2A7&style=flat-plastic&label=github+views)
+  ![](https://komarev.com/ghpvc/?username=plushulush&color=CE5F8B&style=plastic)
+</div>
 
 <p align="center">
   <sub>
-  $\color{#E972A7}{\textsf{trade your dreams with mine ‎⠀ ♫...}}$
+  $\color{#E6AEC4}{\textsf{trade your dreams with mine ‎⠀ ♫...}}$
 </sub><br>
 </p>
